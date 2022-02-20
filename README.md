@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KingBirdie
+- 👀 I’m interested in making new friends
+- 🌱 I’m currently learning what happens to be needed
+- 💞️ I’m looking to collaborate on friendly gaming sessions
+- 📫 How to reach me Sjholy#0133 on discord
